@@ -69,7 +69,7 @@ Get live updates, read technical breakdowns, and chat directly with the develope
 
 **[→ Join the RPG Economy Discord](https://discord.gg/vEgdPXUDkb)**
 
-[![Discord Page](https://cdn.discordapp.com/attachments/1462728775920783432/1493702504100134984/1000079842-ezremove.png?ex=69dfee5c&is=69de9cdc&hm=4b42c2d8ab1664c25656ecfe5b597c839a1831566aac706ea9f6155856eecd6d&)](https://discord.gg/vEgdPXUDkb)
+[![Discord Page](https://cdn.discordapp.com/attachments/1462728775920783432/1493702504100134984/1000079842-ezremove.png?ex=6a0d6a1c&is=6a0c189c&hm=f3936c0e3e62a14630c7253b22f8a65c191ee19bacee1bcbc41b6a036fde20a2&)](https://discord.gg/vEgdPXUDkb)
 
 ***
 
